@@ -1,2 +1,3 @@
-# 10119194Latihan1
-Layouting DigiTeam 16/24/2022 Ferdy Mohamad FIrdaus IF-5
+Capek gini terus kek berjuang sendiri ngomong pun gapernah di denger sama sekali.
+ya mungkin sudah bukan prioritas lagi.
+sabar ada batasnya 
